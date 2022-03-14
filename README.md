@@ -1,1 +1,0 @@
-# partok_badini89
